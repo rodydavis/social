@@ -1,5 +1,4 @@
 # social
-All My Social Accounts
 
 YouTube: [Rody Davis - YouTube](https://www.youtube.com/rodydavis)
 
